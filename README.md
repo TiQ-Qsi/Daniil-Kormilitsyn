@@ -9,5 +9,9 @@
 #### [![image](https://github.com/user-attachments/assets/c738759f-b1ca-43f7-8360-ea7c36a9cf0c)](https://t.me/tiQ_Qsi)
 
 
+#### ![image](https://github.com/user-attachments/assets/d52c3df8-c6d2-4657-bcac-046cd9cb51e2) ![image](https://github.com/user-attachments/assets/535b8263-3ad0-472e-a873-191e15070acc) ![image](https://github.com/user-attachments/assets/c2f75b25-cacc-46e3-8cd7-6629e5fb974d) ![image](https://github.com/user-attachments/assets/f4234a9e-a9c0-4019-99dd-96bc63df1367) 
+
+
+
 
 
