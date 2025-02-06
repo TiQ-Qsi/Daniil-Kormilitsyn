@@ -6,7 +6,7 @@
 📚 Постоянно развиваюсь: читаю книги, статьи и прохожу дополнительные курсы.  
 💡 Стремлюсь к глубокому пониманию данных и их эффективному использованию для решения бизнес-задач.  
 
-#### [![img]([https://github.githubassets.com/images/modules/logos_page/GitHub-Mark.png](https://icons8.com/icon/EWzVSK2hyV9H/telegram-app))](https://t.me/tiQ_Qsi)
+#### [![image](https://github.com/user-attachments/assets/c738759f-b1ca-43f7-8360-ea7c36a9cf0c)](https://t.me/tiQ_Qsi)
 
 
 
